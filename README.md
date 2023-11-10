@@ -1,1 +1,3 @@
 # pensamento
+
+Beatriz Krupek
